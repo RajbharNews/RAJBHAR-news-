@@ -1,2 +1,2 @@
-# RAJBHAR-news-
+Rajbhar-News-
 Bhardwaj technology groups 
